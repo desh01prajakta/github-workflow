@@ -1,2 +1,2 @@
 
-"There is nothing permanen, except change"
+"There is nothing permanent, except change"
